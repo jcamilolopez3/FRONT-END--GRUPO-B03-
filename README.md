@@ -10,8 +10,6 @@
 - Jonathan Felipe Cruz Rodríguez  
 - Jeisson Camilo López Bello  
 
-**Docente:** John Olarte  
-**Fecha:** 7 de octubre de 2025  
 
 ---
 
